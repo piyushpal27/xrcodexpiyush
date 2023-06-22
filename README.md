@@ -9,3 +9,5 @@
 •Discord:xrcodexpiyush#1396
 
 •Twitter:xr__beast👀
+
+•Email id: xrpiyushh@gmail.com
